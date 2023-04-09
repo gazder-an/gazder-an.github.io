@@ -1,1 +1,0 @@
-# gazder-an.github.io
